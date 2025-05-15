@@ -1,6 +1,6 @@
 ## hi there
 
-im venus. you can also call me eden or rex. 
+im venus. you can also call me eden or mei. 
 
 i use hy/hymn, he/him and shi/hir. im intersex, genderfluid and gaybian.
 
