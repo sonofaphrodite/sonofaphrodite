@@ -2,7 +2,7 @@
 ![tumblr_4c73d02ec6b57f133e4d4988e2bc5175_321c668c_2048](https://github.com/user-attachments/assets/1aa06bc4-9f92-4d3b-8bfa-ead52cc3eadf)
 
 
-im venus. you can also call me eden or charlotte. 
+im venus. you can also call me eden or cheren. 
 
 i use hy/hymn, he/him and shi/hir. im intersex, genderfluid and gaybian.
 
