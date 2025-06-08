@@ -8,7 +8,7 @@ i use hy/hymn, he/him and shi/hir. im intersex, genderfluid and gaybian.
 
 taken + silver (pokespe) nonsharing selfshipper
 
-proshipper. besides pokespe and pokemon i like the game crush crush
+proship, i like pokespe and pokemon
 
 i dont have a dni besides if your under 14. i dont like interacting with 13 year olds
 
